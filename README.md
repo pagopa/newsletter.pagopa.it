@@ -1,1 +1,1 @@
-# newsletter.pagopa.it-
+# newsletter.pagopa.it
